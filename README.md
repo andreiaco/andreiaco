@@ -12,7 +12,7 @@ I'm passionate about solving problems and learning.
 
 ### 🌍 "Aqueles que passam por nós não vão sós. Deixam um pouco de si, levam um pouco de nós" 
 
-- 📍 From DF living in Rio de Janeiro
+📍 From DF living in Rio de Janeiro
 
 📫 How to reach me:
 
